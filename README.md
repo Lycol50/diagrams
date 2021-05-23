@@ -15,6 +15,7 @@ For info abt me, im 18 years old still quaified for RA 9262: the Anti-Violence A
 My daily life affects when he just started hurt me and abuse me,i got depression and even schizophrenia.
 
 Here is my pictures taken after the abuses:
+
 ![img1](https://i.imgur.com/8zca5XW_d.webp)
 ![img2](https://i.imgur.com/7tPj7ml_d.webp)
 ![img3](https://i.imgur.com/z2pAmnm_d.webp)
